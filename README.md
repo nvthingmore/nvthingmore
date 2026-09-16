@@ -1,7 +1,7 @@
 
 
-![](https://cdn.discordapp.com/attachments/1547685849762889792/1549769078254735511/1800f8753aa99771b558ab12e377ecc3.gif?ex=6aabe66d&is=6aaa94ed&hm=7b0e6494fb09e2b5c4167020913df48ecb36f8e98807fd2446cb6676047ae206) 
 
-✶◟# ⁺       ₊ ˊ˗
 
 ![](https://cdn.discordapp.com/attachments/1547685849762889792/1549765627982516284/e7cb4d73ef42e1d10e498e63284701d2.gif?ex=6aabe336&is=6aaa91b6&hm=26f99286c9e74f9987ea37ae4f7069111778880f58cdf3b3f9c5fb93fe96cf5b)
+
+  ✶◟# ⁺       ₊ ˊ˗
