@@ -2,6 +2,7 @@
 
 
 
-![](https://cdn.discordapp.com/attachments/1547685849762889792/1549765627982516284/e7cb4d73ef42e1d10e498e63284701d2.gif?ex=6aabe336&is=6aaa91b6&hm=26f99286c9e74f9987ea37ae4f7069111778880f58cdf3b3f9c5fb93fe96cf5b)
+![](https://cdn.discordapp.com/attachments/1547685849762889792/1549771117005250590/08e5b56a7ee0f949adc56d8350f63bbe.gif?ex=6aabe853&is=6aaa96d3&hm=ebea0858821da51074cbed312bc4952602017c33a55aa1b5ccb25de7c6e37a85)
 
-  ✶◟# ⁺       ₊ ˊ˗
+  ✶◟# ⁺    ₊ ˊ˗  
+
