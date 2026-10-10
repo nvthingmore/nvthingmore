@@ -1,17 +1,13 @@
 
 
 
-![](https://cdn.discordapp.com/attachments/1547685849762889792/1549774543382650940/7e1489697bf3c7d9ad0f14258fc94042.jpg?ex=6aabeb84&is=6aaa9a04&hm=9e21e9754657c153ad2c928ac6aa1e2d64a27a2f59b976032a99aa10dcd28a4f)
+![](https://cdn.discordapp.com/attachments/1547685849762889792/1558511497791930531/fd52fafcf69176831e51a1b7d9edeaed_1.jpg?ex=6acbb470&is=6aca62f0&hm=3c2bac2cc7a60da2e1c4ee91a22e21c6598700ffc7e6bf22a5c712521f79350a)
 
- . ݁˖ . ݁ 𝜗𝜚    ˎˊ˗
+✶◟# ⁺    ₊ ˊ˗
  
-  ⁱᵐ ᵃⁿ ᵒᶜᵉᵃⁿ ᵒᶠ ˡᵒᵛᵉ ᵃⁿᵈ ʸᵒᵘʳᵉ ˢᶜᵃʳᵉᵈ ᵒᶠ ʷᵃᵗᵉʳ 
+  ⁱᵐ ᵃⁿ ᵒᶜᵉᵃⁿ ᵒᶠ ˡᵒᵛᵉ ᵃⁿᵈ ʸᵒᵘʳᵉ ˢᶜᵃʳᵉᵈ ᵒᶠ ʷᵃᵗᵉʳ      
 
- ✶◟# ⁺    ₊ ˊ˗        
- 
-![](https://cdn.discordapp.com/attachments/1547685849762889792/1549771117005250590/08e5b56a7ee0f949adc56d8350f63bbe.gif?ex=6aabe853&is=6aaa96d3&hm=ebea0858821da51074cbed312bc4952602017c33a55aa1b5ccb25de7c6e37a85)       
-
- 𓏲 ໒꒱    .   ⟡.·
+ 𓏲 ໒꒱  .   ₊ ˊ
       
   
   
