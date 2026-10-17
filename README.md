@@ -1,7 +1,7 @@
 
 
 
-![](https://cdn.discordapp.com/attachments/1547685849762889792/1560997204859293817/Baslksz109_20261017154104.png?ex=6ad4bf6f&is=6ad36def&hm=3e92797edf423555c365c358ffae31597e7b3ecea3d80a28afae5cbda5c6d2dc)
+![](https://cdn.discordapp.com/attachments/1547685849762889792/1560998184371888168/Baslksz109_20261017154913.png?ex=6ad4c059&is=6ad36ed9&hm=36882903f1cd60d3b1b3ed858a364f06bb55b94f1e82767cfd82c00b4751c223)
     
   ,,  ♪
     
