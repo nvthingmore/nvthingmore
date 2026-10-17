@@ -4,7 +4,7 @@
     
   ,,    
 
-  $\color{#ffffff}{\text{he had no idea they was about to play in his face 😂😂}}$
+  he had no idea they was about to play in his face 😂😂
     
   
   
