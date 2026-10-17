@@ -6,7 +6,7 @@
     
   ,,  ♪
     
- 𝒮h𝗶𝗿𝘂 𝗸𝘢 .  
+ he had no idea they was about to play in his face 😂😂 .  
 
   ,, ༄
 
