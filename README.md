@@ -8,9 +8,6 @@
  he had no idea they was about to play in his face 😂😂 
 
   ,, 
-
-
-   i hate decorating profiles get me out of heeere bruhhhhh
   
   
  
