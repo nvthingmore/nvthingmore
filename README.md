@@ -1,3 +1,3 @@
-![](https://cdn.discordapp.com/attachments/1547685849762889792/1569022613206863932/6d7c01c2e3ac4bc16daae2b6ac117651.jpg?ex=6af1f1ae&is=6af0a02e&hm=591056287d015fb682419e670ed0bf3d4d212f326ad56466b5a635a41be51eec) 
+![](https://cdn.discordapp.com/attachments/1547685849762889792/1570503435969892494/6d7c01c2e3ac4bc16daae2b6ac1176512.jpg?ex=6af754cd&is=6af6034d&hm=04865c54a9694884ae210bde5ae637a1c8a805bd0cedfe573f1e28232179dbcd) 
 
 .  cr : saigonopafu on x
